@@ -51,10 +51,8 @@
 ---
 
 ### 📫 Contact Me
-- Email: **your-email@example.com**  
-- Instagram: **your-username** (optional)  
-- LinkedIn: *(If you have one)*  
-
+- Email:hashmitabish234@gmail.com  
+- Instagram:tabishabdulkarim  
 ---
 
 ### 👍 Thank You for Visiting!
